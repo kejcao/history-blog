@@ -35,7 +35,7 @@ In conclusion, multiple factors contributed to the decline of the Han dynasty. T
 
 ## Footnotes
 
-1. "Barbarians and Envoys Bring Tribute to the Emperor." The Walters Art Mueseum, accessed May 11, 2024, [https://art.thewalters.org/detail/409/barbarians-and-envoys-bring-tribute-to-the-emperor/](https://art.thewalters.org/detail/409/barbarians-and-envoys-bring-tribute-to-the-emperor/)
+1. "Barbarians and Envoys Bring Tribute to the Emperor." The Walters Art Museum, accessed May 11, 2024, [https://art.thewalters.org/detail/409/barbarians-and-envoys-bring-tribute-to-the-emperor/](https://art.thewalters.org/detail/409/barbarians-and-envoys-bring-tribute-to-the-emperor/)
 2. Tribolet, Jack (2024) "Military Comparison of the Han Dynasty and the Roman Republic," *Comparative Civilizations Review*: Vol. 90: No. 1, Article 7.
 3. Dorn, James. "Monetary Freedom: Lessons from the Western Han Dynasty." *Cato Institute*, Oct 17, 2017, [https://www.cato.org/blog/monetary-freedom-lessons-western-han-dynasty](https://www.cato.org/blog/monetary-freedom-lessons-western-han-dynasty)
 4. "Learning activity 3.4: Characteristics of societies in decline." *TVO ILC*, accessed May 11, 2024, [https://course.ilc.tvo.org/d2l/le/lessons/22444446/topics/186821945](https://course.ilc.tvo.org/d2l/le/lessons/22444446/topics/186821945)
